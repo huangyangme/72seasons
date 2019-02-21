@@ -168,3 +168,8 @@
 初候，鸡乳，鸡，水畜也，得阳气而卵育，故云乳。 
 二候，征鸟厉疾；征鸟，鹰隼之属，杀气盛极，故猛厉迅疾而善于击也。
 三候，水泽腹坚。阳气未达，东风未至，故水泽正结而坚。
+
+---
+
+[《月令七十二候集解》](https://ctext.org/wiki.pl?if=gb&chapter=312762)
+[《二十四節氣與七十二候》](http://observator-gutentag.blogspot.com/2016/08/blog-post_22.html)
