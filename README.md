@@ -173,3 +173,6 @@
 
 [《月令七十二候集解》](https://ctext.org/wiki.pl?if=gb&chapter=312762)
 [《二十四節氣與七十二候》](http://observator-gutentag.blogspot.com/2016/08/blog-post_22.html)
+[二十四節気と七十二候｜暦生活](https://www.543life.com/season.html)
+[二十四節気, 七十二候](http://24sekki.tourmap.jp/?eid=8)
+[二十四節気 七十二候にちなんだ配色について](https://qiita.com/Osamurai_san/items/439c8967ad7e512ff985)
